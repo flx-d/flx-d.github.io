@@ -16,3 +16,5 @@
 
 [material sobre la teoría del valor, respuestas a los austriacos y la polémica bohm bawerk vs. el capital](https://mega.nz/folder/PplyBICI#Yw3ARjBlMPBP8oU2eaQ4KQ)
 
+[MFR](https://drive.google.com/drive/folders/1yXZYYDbrJrxlRzYbUNHI10vhtKlfNwZ4)
+
